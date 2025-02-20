@@ -16,3 +16,7 @@ Feedback is always welcome!
 Version 1.0.1
 
 
+![image](https://github.com/user-attachments/assets/d1da0048-c00e-4d7c-af3d-07073193bfa4)
+
+
+![image2](https://github.com/user-attachments/assets/8f88ee33-d1e1-4d19-bf6e-711262a1c0f0)
